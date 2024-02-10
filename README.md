@@ -2,4 +2,4 @@
 
 How did you get here
 
-![Professionalism isn't important](https://tenor.com/view/coding-scaler-create-impact-monkey-programmer-gif-24991476)
+![Me](https://tenor.com/view/coding-scaler-create-impact-monkey-programmer-gif-24991476)
